@@ -1,0 +1,1 @@
+# qoin-digital-technical-test
